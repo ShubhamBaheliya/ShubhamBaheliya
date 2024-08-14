@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **shubhambaheliya43@gmail.com**
 
-- 📄 Know about my experiences [I am fresher](I am fresher)
+- 📄 Know about my experiences [I am fresher]
 
 - ⚡ Fun fact **I am funny**
 
